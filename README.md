@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AllanJu0531k
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning class 12 
+- 🌱 I’m currently studying class 12 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me, You can reach me by discord , Àrávînd_Ď℗#1421
 
